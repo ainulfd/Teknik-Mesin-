@@ -3,3 +3,4 @@
 ![image](https://github.com/ainulfd/Teknik-Mesin-/assets/99418362/ca3e5063-e8e8-4edc-9c74-3fad6e02129d)
 ![image](https://github.com/ainulfd/Teknik-Mesin-/assets/99418362/974e2bf7-b70e-4c21-82b7-0f72604f1452)
 ![image](https://github.com/ainulfd/Teknik-Mesin-/assets/99418362/cb8dc798-161b-46d7-8bda-19dda58dbd28)
+![image](https://github.com/ainulfd/Teknik-Mesin-/assets/99418362/14ac7c60-675a-41fd-86ff-e232955cac5e)
