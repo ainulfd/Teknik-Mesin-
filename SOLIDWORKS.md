@@ -1,2 +1,13 @@
 ![image](https://github.com/ainulfd/Teknik-Mesin-/assets/99418362/d0aee160-8eec-47a7-835c-391851f0b6ce)
+![image](https://github.com/ainulfd/Teknik-Mesin-/assets/99418362/c6cecbcf-30f1-478c-a500-802ec9c91d5b)
+![image](https://github.com/ainulfd/Teknik-Mesin-/assets/99418362/05bd28f0-7fcd-4d24-9f94-f0ea77b097da)
+![image](https://github.com/ainulfd/Teknik-Mesin-/assets/99418362/aaa3aec2-a795-4dd1-bf77-3573cd031f86)
+![image](https://github.com/ainulfd/Teknik-Mesin-/assets/99418362/7b2310d9-c42b-408c-8332-86fa1fe65027)
+![image](https://github.com/ainulfd/Teknik-Mesin-/assets/99418362/cd194aeb-a671-40fa-a9d1-3453c469d376)
+![image](https://github.com/ainulfd/Teknik-Mesin-/assets/99418362/d6cb30b7-ab81-412b-bb5c-e397c7a55c85)
+![image](https://github.com/ainulfd/Teknik-Mesin-/assets/99418362/1738abab-b270-46e5-84a1-c7f60dde75a8)
+![image](https://github.com/ainulfd/Teknik-Mesin-/assets/99418362/dc19a85b-d107-4c03-a5cc-a1629bb2c64b)
+![image](https://github.com/ainulfd/Teknik-Mesin-/assets/99418362/84efba62-96d9-4c39-9032-35a114be056e)
+![image](https://github.com/ainulfd/Teknik-Mesin-/assets/99418362/dac42ef0-b510-406f-9809-d963c033d25e)
+![image](https://github.com/ainulfd/Teknik-Mesin-/assets/99418362/a432b9c1-9e0b-4c58-ac61-b4a13dc38a05)
 
